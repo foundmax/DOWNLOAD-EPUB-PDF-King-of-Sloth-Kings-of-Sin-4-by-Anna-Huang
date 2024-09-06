@@ -25,7 +25,6 @@ He also has no interest in taking over his family’s empire (much to his father
 
 Nothing brings him more joy than riling her up, but when a tragedy forces them closer than ever, he must grapple with the uncertainty of his future—and the realization that the only person immune to his charms is the only one he truly wants.  
 
-***
 Cool, intelligent, and ambitious, Sloane Kensington is a high-powered publicist who’s used to dealing with difficult clients. 
 
 However, none infuriate—or tempt—her more than a certain billionaire heir, with his stupid dimples and laid-back attitude. 
